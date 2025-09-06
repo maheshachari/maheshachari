@@ -1,4 +1,3 @@
-# Mahesha-J-Achari
 # Hi 👋, I'm Mahesha J Achari  
 
 🎓 MBA student at **MS Ramaiah Institute of Technology, Bengaluru**  
